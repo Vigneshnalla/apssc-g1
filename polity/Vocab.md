@@ -349,3 +349,42 @@ And:
 **State Legislature → Legislative Assembly + Legislative Council (where applicable)**
 
 This grouping should work better as your **final revision dictionary** because similar words are kept together instead of being scattered alphabetically.
+
+
+Preside over means to officially lead and conduct the proceedings of a meeting or House.
+
+President → Head of State
+
+The President represents the Indian State/nation at the constitutional level.
+
+Prime Minister → Head of Government
+
+The Prime Minister leads the government and its day-to-day functioning through the Council of Ministers.
+
+The Government means the people who actually run the country's administration and make policy decisions.
+The Prime Minister leads the Council of Ministers, and together they handle the day-to-day running of the country.
+
+For example:
+
+Deciding government policies
+Running ministries
+Taking administrative decisions
+Implementing programmes
+Coalition means two or more political parties joining together to form or support a government because no single party has enough seats to form the government alone.
+
+Discretion means the freedom or choice to decide something based on your own judgment, when the rules do not give only one compulsory option.
+
+What does “ignoring the precedent of caretaker Prime Minister” mean?
+
+A caretaker Prime Minister is a Prime Minister who continues temporarily until a new government/Prime Minister is properly established.
+Here, administers means officially conducts or gives the oath.
+Swears here means makes a solemn/formal promise.
+
+“death of an incumbent Prime Minister” means:
+
+👉 The death of the Prime Minister who is currently holding the office.
+Spokesman → person who officially communicates the views of an organisation/government
+
+Pleasure here means willingness or approval.
+Furnish means to provide or give information.
+United Front was a coalition of several political parties that came together to form the Central Government in 1996.
